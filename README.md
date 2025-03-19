@@ -8,3 +8,7 @@ César Joan Miam Chan
 ![471347248_10230879185941755_8744318404692915837_n](https://github.com/user-attachments/assets/e6fe4126-4054-4916-ae1b-c32fc9a07ce3)
 
 Hernán Rodrigo Muñoz Marrufo
+
+Carlos Ermilo Manzanero Canto
+
+Cecilia Carolina Canul Couoh
